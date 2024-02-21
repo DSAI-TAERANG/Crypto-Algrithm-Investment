@@ -1,1 +1,1 @@
-# Crypto-Algrithm-Investment
+# Crypto-Algorithm-Investment
